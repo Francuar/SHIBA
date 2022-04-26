@@ -1,2 +1,2 @@
 # SHIBA
-Shiba and the new currency that will revolutionize the future
+Shiba and the new cryptocurrency that will revolutionize the future
